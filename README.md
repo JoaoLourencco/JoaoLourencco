@@ -1,11 +1,6 @@
 
-
-
 ## Olá 👋 Meu nome é João Paulo!
 
-
-
-==========================
 
 **Analista de Testes de Software - QA**
 
