@@ -20,7 +20,7 @@ Também Sou estudante de Gestão da Tecnologia de Informação na UNIFAEL. 👩�
 
 * 🤝 Estou aberto a colaborar em projetos de alto impacto na vida das pessoas
 
-* ⚡Apaixonado por música, quadrinhos, filmes e esportes.
+* ⚡Apaixonado por música, quadrinhos, filmes games e esportes.
 
 
 ## Skills
